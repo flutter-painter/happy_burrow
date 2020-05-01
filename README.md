@@ -9,6 +9,13 @@
 
 <audio src =”assets/Je_parle.m4a”, autoplay=”false”>
 
+<audio controls>
+  <source src="assets/Je_parle.m4a" type="audio/mpeg">
+  <source src="myAudio.ogg" type="audio/ogg">
+  <p>Your browser doesn't support HTML5 audio. Here is
+     a <a href="myAudio.mp4">link to the audio</a> instead.</p>
+</audio>
+
 - lkj
 - Tula - Otto A Totland
 - leavv - fountain
