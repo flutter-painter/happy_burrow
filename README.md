@@ -3,10 +3,12 @@
 - Collection de playlists à éditer entre potes
 - Ecouter en ouvrant les fichiers avec http://flacplayer.ehubsoft.net
 
-//![Horny_Badger_vol_1.jpg]( =200)
-
 <img src="assets/Horny_Badger_vol_1.jpg" alt="drawing" width="200"/>
 
+
+<audio controls="1" controlslist="nodownload nofullscreen noremoteplayback" alt="The Sound File">&lt;source src="/user/pages/m4as/the-sound-file.m4a"&gt;Your browser does not support the audio tag.</audio>
+
+<audio src =”assets/Je_parle.m4a”, autoplay=”false”>
 
 - lkj
 - Tula - Otto A Totland
@@ -55,6 +57,7 @@
 - Gramatik - The prophet - *Street Bangerz*
 - The Allergies - God Walked Down (*fafa*)
 - pete rock - we roll - https://youtu.be/Xt8P4-7-CTg
+
 
 ### bitch
 - Moonlight - Gaullin
