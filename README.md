@@ -5,7 +5,6 @@
 
 <img src="assets/Horny_Badger_vol_1.jpg" alt="drawing" width="200"/>
 
-
 <audio controls="1" controlslist="nodownload nofullscreen noremoteplayback" alt="The Sound File">&lt;source src="/user/pages/m4as/the-sound-file.m4a"&gt;Your browser does not support the audio tag.</audio>
 
 <audio src =”assets/Je_parle.m4a”, autoplay=”false”>
