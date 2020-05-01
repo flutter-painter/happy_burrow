@@ -78,7 +78,7 @@
 - Shaggy - It wasn't me
 
 ## training
-- [Tom Walker - Rapture](https://youtu.be/vXIRFVnApZM)
+- ![Tom Walker - Rapture](https://youtu.be/vXIRFVnApZM)
 - Old town road remix
 - Missy Elliot - Drain the Pain
 - Gramatik - The prophet - *Street Bangerz*
