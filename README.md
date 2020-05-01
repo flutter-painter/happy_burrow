@@ -31,7 +31,7 @@
 - Niniola - Omo Rapala
 - Gramatik - Loungin' - *Street Bangerz*
 - Saint Germain - Sure Thing (feat.john lee hooker)
-- Saint germain - What You Think About
+- Saint germain - [What You Think About](https://youtu.be/zcWbg3bNrDE)
 - LTJ - All Ya Got - https://youtu.be/RDwsCwprjbk
 	- Xperience Organ Mind
 	- People'$
@@ -41,7 +41,7 @@
 - Marlena Shaw - Woman of the Ghetto (Akshin Alizadeh Remix) _gotIt_
 - Musique Saoule - https://youtu.be/M3uCEyZ-k0Q
 - Wanderléa - Mane Joao https://youtu.be/1Wx_7YfmXSU
-- Tim Maia - **Rational Culture**
+- Tim Maia - [Rational Culture](https://youtu.be/t3NwmCU_r_U)
 - Jorge Ben Jor - Take It Easy My Brother Charles https://youtu.be/FiQ3tGAXPK0
 - Marcos Valle - Mentira (Chega de Mentira)
 - Koffee - Toast
@@ -139,3 +139,4 @@
 ### blues
 - Buddy Guy - what kind of woman is this
 - John Scoffield && John Mayer - I don't need no doctor
+- Lightnin' Hopkins - [Woke up This Morning](https://youtu.be/0pM755x5npM)
