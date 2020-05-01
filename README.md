@@ -1,13 +1,11 @@
 # [fracas](https://drive.google.com/open?id=1h-dflwqPgA-ofS9I9ZqgZaiWCSp-UokB)
 
 - Collection de playlists à éditer entre potes
-- Ecouter en ouvrant les fichiers avec http://flacplayer.ehubsoft.net
+- Ecouter en ouvrant les fichiers avec [Flac player](http://flacplayer.ehubsoft.net)
 
 <img src="assets/Horny_Badger_vol_1.jpg" alt="drawing" width="200"/>
 
-
 ***
-
 
 ## vol ii - in the making
 - lkj
@@ -106,11 +104,6 @@
 	- Joa, det sier dem alltid
 - Graffiti Artist Reel 1/1
 
-## sexual hearing
-- [Vanilla - Time](https://youtu.be/W7xT-uWFafI)
-- CocoRosie - Smokey Taboo
-
-
 ### make me lose my funk
 - Donny Hathaway - voices inside (everything is everything)
 	- [The Slum](https://youtu.be/rdWoG4mMsXQ)
@@ -120,3 +113,30 @@
   - Let's Take A Walk.mp3
 - Temptations - Take A Stroll Thru Your Mind
 - James Brown - blind man can see it (extended)
+
+
+## sexual hearing
+- [Vanilla - Time](https://youtu.be/W7xT-uWFafI)
+- CocoRosie - Smokey Taboo
+ 
+## training2
+- [Tom Walker - Rapture](https://youtu.be/vXIRFVnApZM)
+- [Old town road remix](https://youtu.be/7ysFgElQtjI)
+- [Missy Elliot - Drain the Pain](https://youtu.be/I3f-SBhTtuw)
+- [The Allergies - God Walked Down](https://youtu.be/QGv8Q8pZZdc?t=33)
+- [Pete rock - we roll](https://youtu.be/Xt8P4-7-CTg)
+    - A Little Soul.m4a
+- the roots - don't say nuthing poldoore remix
+- Back On the Block.m4a
+- Body Rock [Instrumental].aif
+- Body Rock [Street].aif
+- Club Foot.aif
+- Dark Dub.mp3
+- DIGGING MY POTATO.mp3
+- DJ Zeph - No Limitations (Instrumental).mp3
+- Gramatik - The prophet - *Street Bangerz*
+
+
+### blues
+- Buddy Guy - what kind of woman is this
+- John Scoffield && John Mayer - I don't need no doctor
