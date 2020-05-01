@@ -23,15 +23,14 @@
 	- blues
 
 
-### dance 
-e
-#### deezy dreamers
-
+### dance
 - Lucy Pearl - don't mess with my man
 - Don't blame it on the boogie
 - Lady - hear me tonight
 - Yemi Alade - Night and Day
 - Niniola - Omo Rapala
+
+#### deezy dreamers
 - Gramatik - Loungin' - *Street Bangerz*
 - Saint Germain - Sure Thing (feat.john lee hooker)
 - Saint germain - What You Think About
