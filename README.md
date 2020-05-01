@@ -1,9 +1,9 @@
-# [fracas](https://drive.google.com/open?id=1h-dflwqPgA-ofS9I9ZqgZaiWCSp-UokB)
-
-- Collection de playlists à éditer entre potes
-- Ecouter en ouvrant les fichiers avec [Flac player](http://flacplayer.ehubsoft.net)
+# [horney_badger](https://drive.google.com/open?id=1h-dflwqPgA-ofS9I9ZqgZaiWCSp-UokB)
 
 <img src="assets/Horny_Badger_vol_1.jpg" alt="drawing" width="200"/>
+
+
+- Ecouter en ouvrant les fichiers avec [Flac player](http://flacplayer.ehubsoft.net)
 
 ***
 
@@ -20,7 +20,7 @@
 - Carmel City - Pete Rock & CL Smooth
 - Blue Funk - Heavy D
 - Rather Unique – AZ beat by Pete Rock
-- pete rock - take your time
+- Pete rock - take your time
 
 ### dance deezy dreamers
 - Lucy Pearl - don't mess with my man
@@ -135,7 +135,6 @@
 - DIGGING MY POTATO.mp3
 - DJ Zeph - No Limitations (Instrumental).mp3
 - Gramatik - The prophet - *Street Bangerz*
-
 
 ### blues
 - Buddy Guy - what kind of woman is this
