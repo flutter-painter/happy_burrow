@@ -34,9 +34,9 @@
 - Gramatik - Loungin' - *Street Bangerz*
 - Saint Germain - Sure Thing (feat.john lee hooker)
 - Saint germain - What You Think About
-- LTJ - All Ya Got - https://youtu.be/RDwsCwprjbk
-	- Xperience Organ Mind
-	- People'$
+- LTJ - [All Ya Got](https://youtu.be/RDwsCwprjbk)
+	- LTJ - Xperience Organ Mind
+	- LTJ - People'$
 - Blue Boy - Remember Me
 - Oliver Cheatham - Get Down Saturday Night
 - Chaka Khan - Like Sugar
@@ -57,6 +57,7 @@
   - Let's Take A Walk.mp3
 - Temptations - Take A Stroll Thru Your Mind
 - James Brown - blind man can see it (extended)
+
 #### go groove yourself
 - Groove Armada - Purple Haze
 	- My friend
@@ -87,7 +88,7 @@
 - lkj
 - Shaggy - It wasn't me
 
-#### Techno
+#### techno
 - Regard - Ride it 
 - Tiesto - Grapevine
 - Sound of legend - Tell me why (*classic*)
@@ -105,10 +106,10 @@
 - Body Rock [Street].aif
 - Club Foot.aif
 - Dark Dub.mp3
-- DIGGING MY POTATO.mp3
+- Digging my potato.mp3
 - DJ Zeph - No Limitations (Instrumental).mp3
 - Gramatik - The prophet - *Street Bangerz*
-
+- Morcheeba - Big Calm _gotIt_
 
 ### tripstrubop
 - [J Rawls - Great Live Caper (Feat. J Live)](https://youtu.be/qCvLtXmM-Ks)
@@ -116,19 +117,15 @@
 - Thrust - Do You Understand? (Scam Remix)
 	- Thrust - Emcee
 - J Dilla - Life
-- Morcheeba - Big Calm _gotIt_
 - (e)motion - this is how we are
 - infinite - take a look (instrumental)
 - Tab & anitek
-- Bowery Electric - Deep Blue
 - [44th Move - Broken (Dan Shake Remix)(White)](https://44thmove.bandcamp.com/album/broken-dan-shake-remix)
 - Robert Glasper Experiment - Afro Blue (Feat. Erykah Badu)
 - Chinsaku - See Ya..
 	- Chinsaku - Midnight
 - Tajima Hal - Grape Choice
 - Moderator - Words remain
-- FKJ - Lying Together
-- FKJ - Go back home
 - Desmond Cheese - more crack please
 - Carbon Based Lifeforms
 - Torb The Roach & Floppy MySpace - Sykkelrytmer
@@ -137,9 +134,14 @@
 - Tula - Otto A Totland
 - leavv - fountain
 
+- Bowery Electric - Deep Blue
+- FKJ - Lying Together
+- FKJ - Go back home
+
 #### sexual hearing
 - [Vanilla - Time](https://youtu.be/W7xT-uWFafI)
 
 ### blues
 - Buddy Guy - what kind of woman is this
 - John Scoffield && John Mayer - I don't need no doctor
+- Randy crawford - Lovetown
