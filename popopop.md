@@ -5,7 +5,7 @@
 - Manau - Je parle
 - Ragnboneman - Bluestown EP - Tell 'Em Like It Is _flac_
 
-### Gangsta
+### [Gangsta](https://drive.google.com/open?id=1ae9-6HhpUUcePZMONkpKJbqmOu94wRdl)
 - 7th Sense.mp3
 - 25 Biggie Smalls Freestyle.m4a
 - A To G.m4a

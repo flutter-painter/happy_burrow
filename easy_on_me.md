@@ -1,6 +1,6 @@
 # go easy on me
 
-### Plane
+### [Plane](https://drive.google.com/open?id=1U1OtMf47uztnqKmGv6_oAqDlcAh-EKvw)
 - 2 Wicky.mp3
 - aKu - Not a Dream (Feat. DMiBeats).mp3
 - aKu - Turning Away.mp3
@@ -74,7 +74,7 @@
 - Graffiti Artist Reel 1/1
 
 
-### Gooey
+### [Gooey](https://drive.google.com/open?id=1c-jD0-okdERP_dWAB2BmtCDx4jg1qU9W)
 - 13_6_35.m4a
 - For Da Love Of Da Game.mp3
 - Glory Box.m4a
