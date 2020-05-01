@@ -9,11 +9,6 @@
 ***
 
 ## vol ii - in the making
-- lkj
-- Tula - Otto A Totland
-- leavv - fountain
-- Thrust - Emcee
-
 ### go groove yourself
 - Groove Armada - Purple Haze
 	- My friend
@@ -39,25 +34,15 @@
 - Oliver Cheatham - Get Down Saturday Night
 - Chaka Khan - Like Sugar
 - Marlena Shaw - Woman of the Ghetto (Akshin Alizadeh Remix) _gotIt_
-- Musique Saoule - https://youtu.be/M3uCEyZ-k0Q
-- Wanderléa - Mane Joao https://youtu.be/1Wx_7YfmXSU
+- Françoise Hardy (Woody Braun Remix) 
+	- [Musique Saoule](https://youtu.be/M3uCEyZ-k0Q)
+#### Brazil
+- [Wanderléa - Mane Joao](https://youtu.be/1Wx_7YfmXSU)
 - Tim Maia - **Rational Culture**
-- Jorge Ben Jor - Take It Easy My Brother Charles https://youtu.be/FiQ3tGAXPK0
+- Jorge Ben Jor - [Take It Easy My Brother Charles](https://youtu.be/FiQ3tGAXPK0)
 - Marcos Valle - Mentira (Chega de Mentira)
-- Koffee - Toast
-	- Koffee - W
-	- BEAUTIFUL GIRLS - SEAN KINGSTON (Lyrics)
-- Shaggy - It wasn't me
 
-- [Tom Walker - Rapture](https://youtu.be/vXIRFVnApZM)
-- Old town road remix
-- Missy Elliot - Drain the Pain
-- Gramatik - The prophet - *Street Bangerz*
-- The Allergies - God Walked Down (*fafa*)
-- pete rock - we roll - https://youtu.be/Xt8P4-7-CTg
-
-
-### bitch
+### hip shaker ...
 - Moonlight - Gaullin
 - Roses - Imanbek Remix
 - Silentó - Watch Me (Whip/Nae Nae)
@@ -72,38 +57,16 @@
 - X - Nicky Jam *latino*
 - I Like It - Cardi B *latinoremixx*
 - Like That - Doja Cat
-
+- Koffee - Toast
+	- Koffee - W
+	- BEAUTIFUL GIRLS - SEAN KINGSTON (Lyrics)
+- lkj
+- Shaggy - It wasn't me
 
 ### Techno
 - Regard - Ride it 
 - Tiesto - Grapevine
 - Sound of legend - Tell me why (*classic*)
-
-
-### tripstrubop
-- Thrust - Do You Understand? (Scam Remix)
-- Morcheeba - Big Calm _gotIt_
-- (e)motion - this is how we are
-- infinite - take a look (instrumental)
-- Tab & anitek
-- Bowery Electric - Deep Blue
-- 44th Move - Broken (Dan Shake Remix)(White) 
-	 - https://44thmove.bandcamp.com/album/broken-dan-shake-remix
-- Robert Glasper Experiment - Afro Blue (Feat. Erykah Badu)
-- Chinsaku - See Ya..
-	- Chinsaku - Midnight
-- Tajima Hal - Grape Choice
-- J Dilla - Life
-- Moderator - Words remain
-- FKJ - Lying Together
-- FKJ - Go back home
-- Desmond Cheese - more crack please
-- [J Rawls - Great Live Caper (Feat. J Live)](https://youtu.be/qCvLtXmM-Ks)
-	- instrumental : https://youtu.be/2phrL0xmKrk
-- Carbon Based Lifeforms
-- Torb The Roach & Floppy MySpace - Sykkelrytmer
-	- Joa, det sier dem alltid
-- Graffiti Artist Reel 1/1
 
 ### make me lose my funk
 - Donny Hathaway - voices inside (everything is everything)
@@ -135,6 +98,35 @@
 - DIGGING MY POTATO.mp3
 - DJ Zeph - No Limitations (Instrumental).mp3
 - Gramatik - The prophet - *Street Bangerz*
+
+
+### tripstrubop
+- Thrust - Do You Understand? (Scam Remix)
+- Morcheeba - Big Calm _gotIt_
+- (e)motion - this is how we are
+- infinite - take a look (instrumental)
+- Tab & anitek
+- Bowery Electric - Deep Blue
+- 44th Move - Broken (Dan Shake Remix)(White) 
+	 - https://44thmove.bandcamp.com/album/broken-dan-shake-remix
+- Robert Glasper Experiment - Afro Blue (Feat. Erykah Badu)
+- Chinsaku - See Ya..
+	- Chinsaku - Midnight
+- Tajima Hal - Grape Choice
+- J Dilla - Life
+- Moderator - Words remain
+- FKJ - Lying Together
+- FKJ - Go back home
+- Desmond Cheese - more crack please
+- [J Rawls - Great Live Caper (Feat. J Live)](https://youtu.be/qCvLtXmM-Ks)
+	- instrumental : https://youtu.be/2phrL0xmKrk
+- Carbon Based Lifeforms
+- Torb The Roach & Floppy MySpace - Sykkelrytmer
+	- Joa, det sier dem alltid
+- Graffiti Artist Reel 1/1
+- Tula - Otto A Totland
+- leavv - fountain
+- Thrust - Emcee
 
 ### blues
 - Buddy Guy - what kind of woman is this
