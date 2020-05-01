@@ -152,26 +152,7 @@ Tutti Fruti (!! son fort).mp3
 You Never Can Tell.mp3
 
 ### make me lose my funk
-- 100 Yard Dash.mp3
-- Don't You Worry 'Bout A Thing.m4a
-- Funky Drummer (Original).mp3
-- George Benson-The Ghetto.mp3
-- Grab your funky soul.m4a
-- Help is on the way.mp3
-- I Don't Know If I Can Make It.mp3
-- I Got You (I Feel Good).m4a
-- Stevie Wonder
-  - I Wish.m4a
-- I've Been Watching You.m4a
-- Jungle Boogie.m4a
-- Kansas City Shuffle.mp3
-- Licking Stick-Licking Stick.m4a
-- Moonbeam Woman.mp3
-- Panama City.mp3
-- Papa's Got A Brand New Bag, Pt. 1.m4a
-- Remember Me.m4a
-- Shining Star.m4a
-- Superstition.m4a
+
 - Think.mp3
 - Donny Hathaway - voices inside (everything is everything)
 	- [The Slum](https://youtu.be/rdWoG4mMsXQ)
