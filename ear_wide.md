@@ -1,4 +1,4 @@
-## late crushes
+## coup de coeur recents
 - 741 - salif keita - N b'i fe
 - Martin Léon - prends moi tel quel
 - Charles Trenet - que reste-t-il

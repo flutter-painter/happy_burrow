@@ -46,34 +46,6 @@
 - Troy K. beats - sex Your Favorite Station (SOLD).mp3
 - Ziggurat Records - FLOSSED IN SPACE - 11 beam me back down PURPL MONK prod. by MIYAGI.flac
 
-
-### tripstrubop
-- Thrust - Do You Understand? (Scam Remix)
-- Morcheeba - Big Calm _gotIt_
-- (e)motion - this is how we are
-- infinite - take a look (instrumental)
-- Tab & anitek
-- Bowery Electric - Deep Blue
-- 44th Move - Broken (Dan Shake Remix)(White) 
-	- https://open.spotify.com/track/4pakvxPjOmkoMfMwijsS5B?si=gt8IT-aRSteXdINVrmV1SQ
-	 - https://44thmove.bandcamp.com/album/broken-dan-shake-remix
-- Robert Glasper Experiment - Afro Blue (Feat. Erykah Badu)
-- Chinsaku - See Ya..
-	- Chinsaku - Midnight
-- Tajima Hal - Grape Choice
-- J Dilla - Life
-- Moderator - Words remain
-- FKJ - Lying Together
-- FKJ - Go back home
-- Desmond Cheese - more crack please
-- [J Rawls - Great Live Caper (Feat. J Live)](https://youtu.be/qCvLtXmM-Ks)
-	- instrumental : https://youtu.be/2phrL0xmKrk
-- Carbon Based Lifeforms
-- Torb The Roach & Floppy MySpace - Sykkelrytmer
-	- Joa, det sier dem alltid
-- Graffiti Artist Reel 1/1
-
-
 ### [Gooey](https://drive.google.com/open?id=1c-jD0-okdERP_dWAB2BmtCDx4jg1qU9W)
 - 13_6_35.m4a
 - For Da Love Of Da Game.mp3
@@ -88,8 +60,4 @@
 - Simply Beautiful.m4a
 - Something.m4a
 - Troy K. beats - sex Your Favorite Station (SOLD).mp3
-
-## sexual hearing
-- [Vanilla - Time](https://youtu.be/W7xT-uWFafI)
-- CocoRosie - Smokey Taboo
-- 
+ 

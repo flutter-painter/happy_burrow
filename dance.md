@@ -1,17 +1,13 @@
-- lkj
-- Tula - Otto A Totland
-- leavv - fountain
-- Thrust - Emcee
+<!-- TOC -->autoauto- [slow start](#slow-start)auto- [[latina chiquita](https://drive.google.com/open?id=1o7ilSFHY6RmvRfq4TttfgkmlZlikKw97)](#latina-chiquitahttpsdrivegooglecomopenid1o7ilsfhy6rmvrfq4tttfgkmlzlikkw97)auto- [[Bitch wanna dance](https://drive.google.com/open?id=1fSPtBU9C3F3J_Vi3oT6p513DSl3yBhTU)](#bitch-wanna-dancehttpsdrivegooglecomopenid1fsptbu9c3f3j_vi3ot6p513dsl3ybhtu)auto- [[Rock and Roll](https://drive.google.com/open?id=1dwsGK5lbDvV4lX5qYdJ5Ocf2hpYAxNO6)](#rock-and-rollhttpsdrivegooglecomopenid1dwsgk5lbdvv4lx5qydj5ocf2hpyaxno6)auto- [[out of jail cards](https://drive.google.com/open?id=1l3JQfDZt7KBSrmnjT_JdwYAQ53tGKCgM)](#out-of-jail-cardshttpsdrivegooglecomopenid1l3jqfdzt7kbsrmnjt_jdwyaq53tgkcgm)auto- [empty dancefloor](#empty-dancefloor)autoauto<!-- /TOC -->
 
-### go groove yourself
-- Groove Armada - Purple Haze
-	- My friend
-- Blue Lab Beats - Hi There
-- Carmel City - Pete Rock & CL Smooth
-- Blue Funk - Heavy D
-- Rather Unique – AZ beat by Pete Rock
-- pete rock - take your time
-
+### slow start
+- D'Angelo
+	- Left And Right _aiff_
+	- Brown Sugar _aiff_
+	- Chicken Grease 
+	- Feel Like Makin' Love _aiff_
+- Belleruche - It'll Come
+- Eryhkah Badu - On & On .m4a
 
 ### [latina chiquita](https://drive.google.com/open?id=1o7ilSFHY6RmvRfq4TttfgkmlZlikKw97)
 - Aventura - Obsesion (Bounce).mp3
@@ -26,101 +22,6 @@
 - Scandalous (Ft. Cuban Link).mp3
 - Senorita (intro 40s.mp3
 - The Truth.mp3
-
-### dance deezy dreamers
-- Lucy Pearl - don't mess with my man
-- Don't blame it on the boogie
-- Lady - hear me tonight
-- Yemi Alade - Night and Day
-- Niniola - Omo Rapala
-- Gramatik - Loungin' - *Street Bangerz*
-- Saint Germain - Sure Thing (feat.john lee hooker)
-- Saint germain - What You Think About
-- LTJ - All Ya Got - https://youtu.be/RDwsCwprjbk
-	- Xperience Organ Mind
-	- People'$
-- Blue Boy - Remember Me
-- Oliver Cheatham - Get Down Saturday Night
-- Chaka Khan - Like Sugar
-- Marlena Shaw - Woman of the Ghetto (Akshin Alizadeh Remix) _gotIt_
-- Musique Saoule - https://youtu.be/M3uCEyZ-k0Q
-- Wanderléa - Mane Joao https://youtu.be/1Wx_7YfmXSU
-- Tim Maia - **Rational Culture**
-- Jorge Ben Jor - Take It Easy My Brother Charles https://youtu.be/FiQ3tGAXPK0
-- Marcos Valle - Mentira (Chega de Mentira)
-- Koffee - Toast
-	- Koffee - W
-	- BEAUTIFUL GIRLS - SEAN KINGSTON (Lyrics)
-- Shaggy - It wasn't me
-
-## training
-- ![Tom Walker - Rapture](https://youtu.be/vXIRFVnApZM)
-- Old town road remix
-- Missy Elliot - Drain the Pain
-- Gramatik - The prophet - *Street Bangerz*
-- The Allergies - God Walked Down (*fafa*)
-- pete rock - we roll - https://youtu.be/Xt8P4-7-CTg
-- the roots - don't say nuthing poldoore remix
-- A Little Soul.m4a
-- Back On the Block.m4a
-- Body Rock [Instrumental].aif
-- Body Rock [Street].aif
-- Chainsaw.mp3
-- Club Foot.aif
-- Dark Dub.mp3
-- DIGGING MY POTATO.mp3
-- DJ Zeph - No Limitations (Instrumental).mp3
-- Drop.mp3
-- Flutter.mp3
-- For the People.m4a
-- Get Involved.m4a
-- Get Misunderstood (Quantic Remix).mp3
-- It's About That Time.aif
-- JD73 - Happy People.mp3
-- JéhaN - Suck my beat.mp3
-- Joey Starr & DJ Spank - Sitting Bull.mp3
-- Love Spreads.mp3
-- Monstrueux Quantic.mp3
-- Outro.m4a
-- Passion.mp3
-- Pete_s Jazz.m4a
-- Play Dis Only At Night.m4a
-- Shag - Volume 1- Jazz Blend - 08 Theft.mp3
-- Shag - Volume 3- Ben Garside - 06 Spacy.mp3
-- Shag - Volume 3- Ben Garside - 08 Sinking.mp3
-- Shag - Volume 3- Ben Garside - 11 Downtrodden.mp3
-- Shag - Volume 5- Jesus Iced - 05 End With Me.mp3
-- Shag - Volume 10- Identity Crisis - 05 Empty (What Will Fill This Void-).mp3
-- Smooth Sailing.m4a
-- Something Funky.m4a
-- Take the D Train.m4a
-- The Boss.m4a
-- The Daydream.mp3
-- Walk On By.m4a
-- Woman (Patric La Funk Mob Remix).mp3
-
-### bitch
-- Moonlight - Gaullin
-- Roses - Imanbek Remix
-- Silentó - Watch Me (Whip/Nae Nae)
-- Jorja Smith - Be Honest (feat. Burna Boy) 
-	- https://youtu.be/hQsZUVMwEls
-	- remix jazz https://youtu.be/It3iCdU119w
-- Jeremih - Birthday Sex - https://youtu.be/vYMxOzxKYYo
-- David Guetta - Stay (don't go away)
-- Daft Punk - Around the World
-- Magic system - Premier gaou 
-- J Balvin - Mi gente *latino*
-- X - Nicky Jam *latino*
-- I Like It - Cardi B *latinoremixx*
-- Like That - Doja Cat
-
-### Techno
-- Regard - Ride it 
-- Tiesto - Grapevine
-- Sound of legend - Tell me why (*classic*)
-
-old
 
 ### [Bitch wanna dance](https://drive.google.com/open?id=1fSPtBU9C3F3J_Vi3oT6p513DSl3yBhTU)
 - Get Right (Album Version)
@@ -139,20 +40,6 @@ old
 - Wannabe.mp3
 - Yolanda Be Cool _ DCUP - We No Speak Americano (Origina.mp3
 
-
-### empty dancefloor
-- Balkan Qoulou
-- Jimmy, Renda-se (sample)
-- la vie en rose
-- Willi denzey - Le Mur Du Son
-- Paroles Paroles
-- We love music
-- Yor Uzga
-- 剪梅
-
-### Wedding
-- Marcia Baila
-
 ### [Rock and Roll](https://drive.google.com/open?id=1dwsGK5lbDvV4lX5qYdJ5Ocf2hpYAxNO6)
 - Be Bop A Lula.mp3
 - Billie Jean.mp3
@@ -165,18 +52,6 @@ old
 - The _Rill_ Thing.m4a
 - Tutti Fruti (!! son fort).mp3
 - You Never Can Tell.mp3
-
-### make me lose my funk
-
-- Think.mp3
-- Donny Hathaway - voices inside (everything is everything)
-	- [The Slum](https://youtu.be/rdWoG4mMsXQ)
-- Lee Dorsey - give it up
-- Raphael Saadiq 
-  - 100 yard dash
-  - Let's Take A Walk.mp3
-- Temptations - Take A Stroll Thru Your Mind
-- James Brown - blind man can see it (extended)
 
 ### [out of jail cards](https://drive.google.com/open?id=1l3JQfDZt7KBSrmnjT_JdwYAQ53tGKCgM)
 - Billie Jean (original 12_ edit)
@@ -193,3 +68,13 @@ old
 - Starlight
 - Suga Suga
 - the sweet escape (sample intro)
+
+### empty dancefloor
+- Balkan Qoulou
+- Jimmy, Renda-se (sample)
+- la vie en rose
+- Willi denzey - Le Mur Du Son
+- Paroles Paroles
+- We love music
+- Yor Uzga
+- 剪梅
