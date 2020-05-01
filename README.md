@@ -30,7 +30,7 @@
 - Yemi Alade - Night and Day
 - Niniola - Omo Rapala
 
-#### deezy dreamers
+#### deezy dreamers
 - Gramatik - Loungin' - *Street Bangerz*
 - Saint Germain - Sure Thing (feat.john lee hooker)
 - Saint germain - What You Think About
