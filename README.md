@@ -1,9 +1,16 @@
-# [Happy Burrow](vol.1)
-
+# Happy Burrow
 <img src="assets/vol1.jpg" alt="drawing" width="200"/>
 // cc David Prudhomme
 
-- Ecouter en ouvrant les fichiers avec [Flac player](http://flacplayer.ehubsoft.net)
+> Ecouter en ouvrant les fichiers avec [Flac player](http://flacplayer.ehubsoft.net)
+
+***
+
+## [vol i](vol.1)
+### [Dance](vol.1/dance.md)
+### [Chill](vol.1/chill.md)
+### [Funky](vol.1/funky.md)
+...
 
 ***
 
