@@ -1,7 +1,7 @@
-# [Horney Badger](https://drive.google.com/open?id=1h-dflwqPgA-ofS9I9ZqgZaiWCSp-UokB)
+# [Happy Burrow](vol.1)
 
-<img src="assets/Horny_Badger_vol_1.jpg" alt="drawing" width="200"/>
-
+<img src="assets/vol1.jpg.jpg" alt="drawing" width="200"/>
+// cc David Prudhomme
 
 - Ecouter en ouvrant les fichiers avec [Flac player](http://flacplayer.ehubsoft.net)
 
