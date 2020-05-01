@@ -3,7 +3,7 @@
 - Collection de playlists à éditer entre potes
 - Ecouter en ouvrant les fichiers avec http://flacplayer.ehubsoft.net
 
-![Horny_Badger_vol_1.jpg](assets/Horny_Badger_vol_1.jpg)
+![Horny_Badger_vol_1.jpg](assets/Horny_Badger_vol_1.jpg =100x20)
 
 
 - lkj
@@ -47,7 +47,7 @@
 	- BEAUTIFUL GIRLS - SEAN KINGSTON (Lyrics)
 - Shaggy - It wasn't me
 
-- ![Tom Walker - Rapture](https://youtu.be/vXIRFVnApZM)
+- [Tom Walker - Rapture](https://youtu.be/vXIRFVnApZM)
 - Old town road remix
 - Missy Elliot - Drain the Pain
 - Gramatik - The prophet - *Street Bangerz*
@@ -85,7 +85,6 @@
 - Tab & anitek
 - Bowery Electric - Deep Blue
 - 44th Move - Broken (Dan Shake Remix)(White) 
-	- https://open.spotify.com/track/4pakvxPjOmkoMfMwijsS5B?si=gt8IT-aRSteXdINVrmV1SQ
 	 - https://44thmove.bandcamp.com/album/broken-dan-shake-remix
 - Robert Glasper Experiment - Afro Blue (Feat. Erykah Badu)
 - Chinsaku - See Ya..
