@@ -3,7 +3,7 @@
 - Collection de playlists à éditer entre potes
 - Ecouter en ouvrant les fichiers avec http://flacplayer.ehubsoft.net
 
-![Horny_Badger_vol_1.jpg](Horny_Badger_vol_1.jpg)
+![Horny_Badger_vol_1.jpg](assets/Horny_Badger_vol_1.jpg)
 
 
 - lkj

@@ -1,5 +1,3 @@
-<!-- TOC -->autoauto- [slow start](#slow-start)auto- [[latina chiquita](https://drive.google.com/open?id=1o7ilSFHY6RmvRfq4TttfgkmlZlikKw97)](#latina-chiquitahttpsdrivegooglecomopenid1o7ilsfhy6rmvrfq4tttfgkmlzlikkw97)auto- [[Bitch wanna dance](https://drive.google.com/open?id=1fSPtBU9C3F3J_Vi3oT6p513DSl3yBhTU)](#bitch-wanna-dancehttpsdrivegooglecomopenid1fsptbu9c3f3j_vi3ot6p513dsl3ybhtu)auto- [[Rock and Roll](https://drive.google.com/open?id=1dwsGK5lbDvV4lX5qYdJ5Ocf2hpYAxNO6)](#rock-and-rollhttpsdrivegooglecomopenid1dwsgk5lbdvv4lx5qydj5ocf2hpyaxno6)auto- [[out of jail cards](https://drive.google.com/open?id=1l3JQfDZt7KBSrmnjT_JdwYAQ53tGKCgM)](#out-of-jail-cardshttpsdrivegooglecomopenid1l3jqfdzt7kbsrmnjt_jdwyaq53tgkcgm)auto- [empty dancefloor](#empty-dancefloor)autoauto<!-- /TOC -->
-
 ### slow start
 - D'Angelo
 	- Left And Right _aiff_
