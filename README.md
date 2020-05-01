@@ -1,4 +1,4 @@
-# [horney_badger](https://drive.google.com/open?id=1h-dflwqPgA-ofS9I9ZqgZaiWCSp-UokB)
+# [Horney Badger](https://drive.google.com/open?id=1h-dflwqPgA-ofS9I9ZqgZaiWCSp-UokB)
 
 <img src="assets/Horny_Badger_vol_1.jpg" alt="drawing" width="200"/>
 
@@ -114,12 +114,11 @@
 - Temptations - Take A Stroll Thru Your Mind
 - James Brown - blind man can see it (extended)
 
-
-## sexual hearing
+### sexual hearing
 - [Vanilla - Time](https://youtu.be/W7xT-uWFafI)
 - CocoRosie - Smokey Taboo
  
-## training2
+### training2
 - [Tom Walker - Rapture](https://youtu.be/vXIRFVnApZM)
 - [Old town road remix](https://youtu.be/7ysFgElQtjI)
 - [Missy Elliot - Drain the Pain](https://youtu.be/I3f-SBhTtuw)
