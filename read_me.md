@@ -5,17 +5,11 @@
 
 <img src="assets/Horny_Badger_vol_1.jpg" alt="drawing" width="200"/>
 
-<audio controls="1" controlslist="nodownload nofullscreen noremoteplayback" alt="The Sound File">&lt;source src="/user/pages/m4as/the-sound-file.m4a"&gt;Your browser does not support the audio tag.</audio>
 
-<audio src =”assets/Je_parle.m4a”, autoplay=”false”>
+***
 
-<audio controls>
-  <source src="assets/Je_parle.m4a" type="audio/mpeg">
-  <source src="myAudio.ogg" type="audio/ogg">
-  <p>Your browser doesn't support HTML5 audio. Here is
-     a <a href="myAudio.mp4">link to the audio</a> instead.</p>
-</audio>
 
+## vol ii - in the making
 - lkj
 - Tula - Otto A Totland
 - leavv - fountain
@@ -29,7 +23,6 @@
 - Blue Funk - Heavy D
 - Rather Unique – AZ beat by Pete Rock
 - pete rock - take your time
-
 
 ### dance deezy dreamers
 - Lucy Pearl - don't mess with my man
