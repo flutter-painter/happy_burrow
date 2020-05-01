@@ -1,6 +1,6 @@
 # [Happy Burrow](vol.1)
 
-<img src="assets/vol1.jpg.jpg" alt="drawing" width="200"/>
+<img src="assets/vol1.jpg" alt="drawing" width="200"/>
 // cc David Prudhomme
 
 - Ecouter en ouvrant les fichiers avec [Flac player](http://flacplayer.ehubsoft.net)
