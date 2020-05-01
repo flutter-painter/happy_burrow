@@ -21,4 +21,4 @@
 - L'armée des ombres - Thème de Gerbier
 - Carolina Katún - when I'm laid
 - Walking On A Dream - Empire Of The Sun
-  
+- CocoRosie - Smokey Taboo
