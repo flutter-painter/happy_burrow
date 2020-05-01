@@ -9,7 +9,22 @@
 ***
 
 ## vol ii - in the making
+
+	- dance
+		- deezy dreamers
+		- Brazil
+		- make me lose my funk
+		- go groove yourself
+		- hip shaker
+		- Techno
+	- training2
+	- tripstrubop
+		- sexual hearing
+	- blues
+
+
 ### dance 
+
 #### deezy dreamers
 - Lucy Pearl - don't mess with my man
 - Don't blame it on the boogie
