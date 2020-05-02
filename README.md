@@ -19,7 +19,7 @@
 		- Techno
 	- training2
 	- tripstrubop
-		- sexual hearing
+		- hot hearing
 	- blues
 
 
@@ -138,7 +138,7 @@
 - FKJ - Lying Together
 - FKJ - Go back home
 
-#### sexual hearing
+#### hot hearing
 - [Vanilla - Time](https://youtu.be/W7xT-uWFafI)
 
 ### blues
