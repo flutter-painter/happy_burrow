@@ -144,3 +144,13 @@
 - Buddy Guy - what kind of woman is this
 - John Scoffield && John Mayer - I don't need no doctor
 - Randy crawford - Lovetown
+
+- Mahalia - Simmer (feat. Burna Boy) - https://youtu.be/GxjpzUgZvbo
+- Mahalia - I wish I missed my ex - https://youtu.be/a7kT52xL-7g
+- Bill Withers - Lovely Day (Ahmed Sirour tribute remix) - https://youtu.be/0-e8IjCkWDI  / remix 
+- Dafuniks - Disco Dansen https://youtu.be/znA7KrAUmwc
+- Booster - Slow Is Beautiful
+- The Geek x Vrv - "Levitation"
+- Fanga - Ni ya wouele
+- Sniper - La rumba
+- Your Eyez Only - J. Cole (Instrumental)
