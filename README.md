@@ -22,7 +22,6 @@
 		- sexual hearing
 	- blues
 
-
 ### dance
 - Lucy Pearl - don't mess with my man
 - Don't blame it on the boogie
