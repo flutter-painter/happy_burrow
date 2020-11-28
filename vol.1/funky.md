@@ -1,22 +1,22 @@
 # [funky](https://drive.google.com/open?id=11vTGJug_SAhvb9iaO37jpgr1QE8KtfJe)
 
-- 100 Yard Dash.mp3
-- Don't You Worry 'Bout A Thing.m4a
-- Funky Drummer (Original).mp3
-- George Benson-The Ghetto.mp3
-- Grab your funky soul.m4a
-- Help is on the way.mp3
-- I Don't Know If I Can Make It.mp3
-- I Got You (I Feel Good).m4a
+- 100 Yard Dash
+- Don't You Worry 'Bout A Thing
+- Funky Drummer (Original)
+- George Benson - The Ghetto
+- Grab your funky soul
+- Licking Stick-Licking Stick
+- Papa's Got A Brand New Bag, Pt. 1
+- Help is on the way
+- I Don't Know If I Can Make It
+- I Got You (I Feel Good)
 - Stevie Wonder
-  - I Wish.m4a
-- I've Been Watching You.m4a
-- Jungle Boogie.m4a
-- Kansas City Shuffle.mp3
-- Licking Stick-Licking Stick.m4a
-- Moonbeam Woman.mp3
-- Panama City.mp3
-- Papa's Got A Brand New Bag, Pt. 1.m4a
-- Remember Me.m4a
-- Shining Star.m4a
-- Superstition.m4a
+  - I Wish
+- I've Been Watching You
+- Jungle Boogie
+- Kansas City Shuffle
+- Moonbeam Woman
+- Panama City
+- Remember Me
+- Shining Star
+- Superstition
