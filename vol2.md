@@ -110,7 +110,7 @@
 	- instrumental : https://youtu.be/2phrL0xmKrk
 - Thrust - Do You Understand? (Scam Remix)
 	- Thrust - Emcee
-- J Dilla - Life
+- J Dilla - Life https://youtu.be/Agl1TgVfls0
 - (e)motion - this is how we are
 - infinite - take a look (instrumental)
 - Tab & anitek
@@ -118,7 +118,7 @@
 - Robert Glasper Experiment - Afro Blue (Feat. Erykah Badu)
 - Chinsaku - See Ya..
 	- Chinsaku - Midnight
-- Tajima Hal - Grape Choice
+- Tajima Hal - Grape Choice https://youtu.be/ZB8nllnRJB0
 - Moderator - Words remain
 - Desmond Cheese - more crack please
 - Carbon Based Lifeforms
@@ -126,7 +126,7 @@
 	- Joa, det sier dem alltid
 - Graffiti Artist Reel 1/1
 - Tula - Otto A Totland
-- leavv - fountain
+- leavv - fountain https://youtu.be/iaxdSuDYlno
 
 - Bowery Electric - Deep Blue
 - FKJ - Lying Together
@@ -144,7 +144,7 @@
 - Bill Withers - Lovely Day (Ahmed Sirour tribute remix) - https://youtu.be/0-e8IjCkWDI  / remix 
 - Dafuniks - Disco Dansen https://youtu.be/znA7KrAUmwc
 - Booster - Slow Is Beautiful
-- The Geek x Vrv - "Levitation"
+- The Geek x Vrv - "Levitation" https://youtu.be/wkoN0aD16bE
 - Fanga - Ni ya wouele
 - Sniper - La rumba
 - Your Eyez Only - J. Cole (Instrumental)
