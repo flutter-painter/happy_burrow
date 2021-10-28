@@ -5,6 +5,9 @@ https://youtu.be/SWlE3Ql1yyM?t=8568
 02:17:20 Magnolia
 03h13m00 Boulevard
 
+* straight to hell ours samplus https://youtu.be/xIHj9EKNFF4
+* nostrale  https://youtu.be/hBTAUdX6dr4
+
 - Ours Samplus - Hamacadame https://youtu.be/Zelrxdi0EbM // Brazil banger
 - l'orage
 - Beyond
