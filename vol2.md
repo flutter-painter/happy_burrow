@@ -133,11 +133,9 @@
 - FKJ - Go back home
 
 #### hot hearing
-- [Vanilla - Time](https://youtu.be/W7xT-uWFafI)
+- Vanilla - Time https://youtu.be/W7xT-uWFafI
 
-### blues
 - Buddy Guy - what kind of woman is this
-- John Scoffield && John Mayer - I don't need no doctor https://youtu.be/KlCWsh3Unl8
 - Randy crawford - Lovetown
 - Mahalia - Simmer (feat. Burna Boy) - https://youtu.be/GxjpzUgZvbo
 - Mahalia - I wish I missed my ex - https://youtu.be/a7kT52xL-7g

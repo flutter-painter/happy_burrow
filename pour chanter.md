@@ -9,12 +9,13 @@
 * https://youtu.be/8TlqfzfFwOo I who have nothing (Donny Hathaway) // Soul jazz 
 
 * https://youtu.be/J8IFQ0-Nqmw I don't know (Ruth Brown)
+* https://youtu.be/I06UnNCyZ5M i'm housin (Rage Against The Machine)
 
 ### acoustic bass
 https://youtu.be/wLveGKvt2Rw hit the bass jack
 
 ##### hip jazz pedro singing
-https://youtu.be/_KFbuJlc9gw ? (j rawls)
+https://youtu.be/_KFbuJlc9gw Blue #2 feat. Home Skill & Charles Cooper (j rawls)
 https://youtu.be/y6P3kV5OQ18 lone catalyst (j rawls)
 https://youtu.be/whhI4Bmr_HU lose yourself jizhop
 
