@@ -2,6 +2,19 @@
 
 // TODO see if you keep this or spread it accross
 
+* synapson mohan https://youtu.be/-8kEX51Ztgs
+* https://soundcloud.com/jahaan-sweet
+* https://www.discogs.com/artist/2261741-Josh-Crocker
+
+* das efx remix https://youtu.be/y1wV-XbDjtM
+* the what https://youtu.be/CZU1hC55sdE
+* flava in ya ear https://youtu.be/gepVwpoD1Jc
+* dig this https://www.alanhawkshaw.com/albums
+* pepe bradock https://youtu.be/gKXopPcTPaQ
+* señorita https://youtu.be/nJHYDkvRB2Y
+* let's go to work https://youtu.be/OBTQM_23ZHA
+* i don't trust myself https://youtu.be/v2sJTLA5FR8
+
 https://youtu.be/s1jwmksHlYA soliloquy - Errol Garner
 
 https://youtu.be/3aMLZm8ykoE fue mejor - kali uchis & sza
