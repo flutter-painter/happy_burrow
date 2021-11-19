@@ -1,3 +1,4 @@
+
 ### hack zik
 
 // TODO see if you keep this or spread it accross
@@ -15,12 +16,10 @@
 * let's go to work https://youtu.be/OBTQM_23ZHA
 * i don't trust myself https://youtu.be/v2sJTLA5FR8
 
-https://youtu.be/s1jwmksHlYA soliloquy - Errol Garner
-
-https://youtu.be/3aMLZm8ykoE fue mejor - kali uchis & sza
-
-https://youtu.be/8OyRL48ADjQ she's a maniac 
-https://youtu.be/sCz3lrhyQv4 no jive
+* [x] https://youtu.be/s1jwmksHlYA soliloquy - Errol Garner
+* [x] https://youtu.be/3aMLZm8ykoE fue mejor - kali uchis & sza
+* [x] https://youtu.be/8OyRL48ADjQ she's a maniac 
+* [x] https://youtu.be/sCz3lrhyQv4 no jive
 
 https://lossless-flac.com
 thebest-music.com
@@ -31,14 +30,14 @@ return of the boom bap vol 6
 Masayoshi Takanaka 
 Paulinho Nogueira
 
-https://youtu.be/YAnZTUU1z_s ROWJAY - ASTRAL DRILL [PROD BY DEMNACHO] //  rap quebecois 
-https://electricoctopusofficial.bandcamp.com/album/inclinations
+* [x] https://youtu.be/YAnZTUU1z_s ROWJAY - ASTRAL DRILL [PROD BY DEMNACHO] //  rap quebecois 
 
+https://electricoctopusofficial.bandcamp.com/album/inclinations
 https://soundcloud.com/mikis-theodorakis-official mikis theodorakis // toBeSampled
 
-https://youtu.be/vesF7AJMUug A Cat Called Fritz feat. Audessey & Pete Flux - Mind Power (Parental Remix Instrumental)
+* [x] https://youtu.be/vesF7AJMUug A Cat Called Fritz feat. Audessey & Pete Flux - Mind Power (Parental Remix Instrumental)
 
-https://youtu.be/netuXlgM0lk Ludivine Issambourg - No More (Mr Gib Remix) {Official Audio}
+* [x] https://youtu.be/netuXlgM0lk Ludivine Issambourg - No More (Mr Gib Remix) {Official Audio}
 https://youtu.be/xSE1W0Zaa3U Anitek - No Words
 * tab & anitek beat
 
