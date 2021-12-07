@@ -1,5 +1,9 @@
-
 ### hack zik
+
+
+* https://youtu.be/dIwwjy4slI8 Says (Nils Frahm)
+* https://youtu.be/RYd_uVAHXtE Maladresse (Pierre Rousseau)
+* https://youtu.be/6u7_pYy-RRU Show me love (Lala &ce)
 
 // TODO see if you keep this or spread it accross
 
