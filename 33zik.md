@@ -1,10 +1,21 @@
 ### hack zik
+* https://soundcloud.com/jahaan-sweet
+* https://www.discogs.com/artist/2261741-Josh-Crocker
+* https://electricoctopusofficial.bandcamp.com/album/inclinations
+* https://soundcloud.com/mikis-theodorakis-official mikis theodorakis // toBeSampled
+
+
+https://lossless-flac.com
+thebest-music.com
+https://flac.annuarioaudio.it
+https://jitsi.org
 
 // TODO see if you keep this or spread it accross
 
+* https://youtu.be/puZjdOPbidg Blutch Poplar (Maud Geffray Remix)
+* https://youtu.be/t4ZgnU5m27o room 5 make luv
+
 * synapson mohan https://youtu.be/-8kEX51Ztgs
-* https://soundcloud.com/jahaan-sweet
-* https://www.discogs.com/artist/2261741-Josh-Crocker
 
 * das efx remix https://youtu.be/y1wV-XbDjtM
 * the what https://youtu.be/CZU1hC55sdE
@@ -15,26 +26,16 @@
 * let's go to work https://youtu.be/OBTQM_23ZHA
 * i don't trust myself https://youtu.be/v2sJTLA5FR8
 
-https://youtu.be/s1jwmksHlYA soliloquy - Errol Garner
-
-https://youtu.be/3aMLZm8ykoE fue mejor - kali uchis & sza
-
-https://youtu.be/8OyRL48ADjQ she's a maniac 
-https://youtu.be/sCz3lrhyQv4 no jive
-
-https://lossless-flac.com
-thebest-music.com
-https://flac.annuarioaudio.it
-https://jitsi.org
+* https://youtu.be/s1jwmksHlYA soliloquy - Errol Garner
+* https://youtu.be/3aMLZm8ykoE fue mejor - kali uchis & sza
+* https://youtu.be/8OyRL48ADjQ she's a maniac
+* https://youtu.be/sCz3lrhyQv4 no jive
 
 return of the boom bap vol 6
 Masayoshi Takanaka 
 Paulinho Nogueira
 
-https://youtu.be/YAnZTUU1z_s ROWJAY - ASTRAL DRILL [PROD BY DEMNACHO] //  rap quebecois 
-https://electricoctopusofficial.bandcamp.com/album/inclinations
-
-https://soundcloud.com/mikis-theodorakis-official mikis theodorakis // toBeSampled
+https://youtu.be/YAnZTUU1z_s ROWJAY - ASTRAL DRILL //  rap quebecois 
 
 https://youtu.be/vesF7AJMUug A Cat Called Fritz feat. Audessey & Pete Flux - Mind Power (Parental Remix Instrumental)
 
@@ -323,14 +324,18 @@ https://youtu.be/S-UaoR0FRDE (Dorothy Ashby) //full 30 minutes of pleasure
 - Stormzy - Crown
 
 ### tripstrubop
-- Thrust - Do You Understand? (Scam Remix)
+- Thrust - Do You Understand? (Scam Remix) https://youtu.be/SpxkCYSXDcY
 - (e)motion - this is how we are
-- infinite - take a look (instrumental)
+- infinite - take a look (instrumental) // sing on this shit https://youtu.be/4aiqVxfuep4
 - Tab & anitek
-- Bowery Electric - Deep Blue
+- Bowery Electric - Deep Blue https://youtu.be/p9ZV-jfQm7M
 - Robert Glasper Experiment - Afro Blue (Feat. Erykah Badu)
 - Chinsaku - See Ya..
 - Chinsaku - Midnight
+
+- Non Phixion - Four W's
+
+- The East Flatbush Project - A Madman's Dream Feat. Payday // remix de Kid Loco à partager avec Taibou
 
 - J Dilla - Life
 - Moderator - Words remain
@@ -341,6 +346,8 @@ https://youtu.be/S-UaoR0FRDE (Dorothy Ashby) //full 30 minutes of pleasure
 - Torb The Roach & Floppy MySpace - Sykkelrytmer
 	- Joa, det sier dem alltid
 - Graffiti Artist Reel 1/1
+
+- Big Ric - Knoc 'Em Out (1996) // pour Loulou
 
 ## sex
 - jihove - with you
